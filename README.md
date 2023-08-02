@@ -1,2 +1,2 @@
-Wesbite Link: https://jaineelmodi11.github.io/JaineelModiPortfolio/
+Website Link: https://jaineelmodi11.github.io/JaineelModiPortfolio/
 
